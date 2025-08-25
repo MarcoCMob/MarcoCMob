@@ -1,4 +1,4 @@
-Hi THERE!! hOPe you are having a fabulous day.
+chill
 I am a Software Engineering student.
 
 - 🔭 I’m currently working on getting better at coding. 
